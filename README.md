@@ -1,1 +1,1 @@
-# BNPL-
+# BNPL
